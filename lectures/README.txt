@@ -1,0 +1,1 @@
+it would seem that i have not yet attended a lecture this is a placeholder 
